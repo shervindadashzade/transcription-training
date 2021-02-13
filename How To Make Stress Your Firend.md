@@ -1,4 +1,8 @@
+## How To Make Stress Your Friend Ted Talk
+
 [0:00]
+
+#### WHAT I WROTE
 ted talk circulated live at ted converense south partner event this episode features physcologist kyle macangle
 
 it's talking it's powerful visuals
@@ -6,6 +10,11 @@ it's talking it's powerful visuals
 download the video on ted.com
 
 here's kyle mackangle
+
+#### WHAT IT SHOULD BE
+ted talks are recorded live at ted south and partner events this episode features phsycologist kyley macganagal
+
+
 
 [00:23]
 
@@ -41,4 +50,29 @@ i am a health phsycologist, and my mission is to help people be happier and heal
 
 ### [01:00]
 
+### [01:00]
+
+#### WHAT I WROTE
+
+but i fear that something i've been teaching 
+for the last ten years is doing more hurm than good 
+and it has to do with stress
+for years i've been telling people stress makes you sick.
+it increases the ~~risks~~ of everything from the ~~comming~~ cold to cardio ~~vascule~~ ~~diseass~~
+~~basicly~~ i've ~~turn~~ stress into the enemy
+but i've changed my mind about the stress
+and today i wanna change yours
+
+#### WHAT IT SHOULD BE
+
+But i fear that something i've been teaching
+for the last 10 years is doing more harm than good,
+and it has to do with stress.
+For years i've been telling people,stress makes you sick.
+it increases the __risk__ of everything from the __common__ cold to cardio __vascular__ __disease__.
+__basically__,i've __turned__ stress into the enemy.
+but i have changed my mind about stress,
+and today, i want to change yours.
+
+### [01:30]
 
