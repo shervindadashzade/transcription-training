@@ -14,11 +14,7 @@ here's kyle mackangle
 #### WHAT IT SHOULD BE
 ted talks are recorded live at ted south and partner events this episode features phsycologist kyley macganagal
 
-
-
 [00:23]
-
-
 
 ### [00:30]
 
@@ -95,3 +91,21 @@ and __they__ started by asking people, how much stress __have__ you __experinced
 they also asked, do you believe that stress is harmful for your health?
 and then they used public death __records__ to find out who died.
 ### [02:00]
+
+### [02:00]
+
+#### WHAT I WROTE
+
+some bad news first, people who ~~exprienced~~ a lot of stress in the previous year had a 43 percent ~~increase~~ risk of ~~diying~~
+but that was only true for the people who also believed that stress is harmful for your health
+people who exprienced a lot of stress but did not view stress as harmful were no more likely to die 
+in fact they had the lowest risk of ~~diying~~ of anyone in the study including people who ~~have~~ ~~releatively~~
+little stress.
+
+#### WHAT IT SHOULD BE
+some bad news first, people who __experienced__ a lot of stress in the previous year had a 43 percent __increased__ risk of __dying__.
+but that was only true for the people who also believed that stress is harmful for your health.
+people who experienced a lot of stress but did not view stress as harmful were no more likely to die.
+in fact they had the lowest risk of dying of anyone in the study including people who __had__ __relatively__ little stress.
+
+### [02:35]
