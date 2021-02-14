@@ -76,3 +76,22 @@ and today, i want to change yours.
 
 ### [01:30]
 
+
+### [01:30]
+
+#### WHAT I WROTE
+
+let me start with a study that made me rethink my whole approach to stress
+this study tracked thirty thousands ~~adult~~  in united states for eight years
+and ~~it~~ started by asking people how much stress ~~do~~ you ~~expreince~~ in the last year
+
+they also asked do you believe that strees is harmful for your health
+and then they used public death ~~record~~ to find out who died ?
+
+### WHAT IT SHOULD BE
+let me start with the study that made me rethink my whole approach to stress.
+this study tracked 30,000 __adults__ in the united states for eight years,
+and __they__ started by asking people, how much stress __have__ you __experinced__ in the last year?
+they also asked, do you believe that stress is harmful for your health?
+and then they used public death __records__ to find out who died.
+### [02:00]
