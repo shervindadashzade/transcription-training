@@ -103,9 +103,32 @@ in fact they had the lowest risk of ~~diying~~ of anyone in the study including 
 little stress.
 
 #### WHAT IT SHOULD BE
+
 some bad news first, people who __experienced__ a lot of stress in the previous year had a 43 percent __increased__ risk of __dying__.
 but that was only true for the people who also believed that stress is harmful for your health.
 people who experienced a lot of stress but did not view stress as harmful were no more likely to die.
 in fact they had the lowest risk of dying of anyone in the study including people who __had__ __relatively__ little stress.
 
 ### [02:35]
+
+
+### [02:35]
+
+#### WHAT I WROTE
+
+the resarchers estimated over the 8 years they were tracking ~~dots~~
+one hundered and eighty two thousands americans died ~~permechinly~~  not from stress but from the believe that stress is bad for you 
+that is over twenty thousands death a year 
+now if that estimate is correct, that would make believing stress is bad for you 
+the ~~fiftyth~~ largest cause of death in the united states last year.
+
+
+#### WHAT IT SHOULD BE 
+
+Now the researchers estimated that over the eight years they were tracking __deaths__,
+182,000 americans died __prematurely__,not from stress, but from belif that stress is bad for you. 
+that is over 20,000 death__s__ a year. 
+Now, if that estimate is correct, that would make believing stress bad for you
+the __15th__ largest cause of death in united states last year,
+ 
+### [03:00]
