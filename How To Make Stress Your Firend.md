@@ -132,3 +132,26 @@ Now, if that estimate is correct, that would make believing stress bad for you
 the __15th__ largest cause of death in united states last year,
  
 ### [03:00]
+
+### [03:00]
+
+#### WHAT I WROTE
+
+killing more people than skin cancer,HIV,Aids and ~~homocide~~
+you can see why the study freaked me out
+here i've been speending so much energy telling people stress is bad for your health
+so this study got me wondering can changing how you think about stress make you healthier.
+and here the science says yes
+when you change your mind about stress you can change your body's response to ~~the~~ stress.
+
+
+#### WHAT IT SHOULD BE
+
+killing more people than skin cancer, HIV/AIDS and __homicide__.
+you can see why this study freaked me out.
+here i've been spending so much energy telling people stress is bad for your health.
+so this study got me wondering: can changing how you think about stress make you healthier ?
+and here the science says yes.
+when you change your mind about stress, you can change your body's response to stress.
+
+### [03:30]
