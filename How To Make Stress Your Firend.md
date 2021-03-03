@@ -196,4 +196,50 @@ and __unbeknownst__ to you, the __experimenter__ has been trained to __harass__ 
 now we gonna to all do this together. it's gonna be fun.
 
 ### [04:30]
+
+### [04:30]
+
+#### WHAT I WROTE
+
+i want you all to count backwards from 996 and increments of 7
+~~we~~ gonna to this out~~louad~~ as fast as you can
+starting with 996
+
+go
+ 
+go faster
+
+faster please
+
+you are going too slow
+
+stop stop
+
+that guy made a mistake
+
+we gonna to have to start all over again
+
+#### WHAT IT SHOULD BE
+
+i want you all to count backwards from 996 and increments of 7
+__you__ are going to do this __out loud__,as fast as you can,starting with 996
+
+go
+
+go faster
+
+faster please
+
+you are going too slow.
+
+stop stop
+
+that guy made a mistake
+
+we are going to have to start all over again
+
+
+### [05:00]
+
 Daily Goal => [5:30]
+
