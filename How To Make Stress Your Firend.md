@@ -176,5 +176,24 @@ you come into the __laboratory__, and you are told you have to give a five-minut
 
 ### [04:00]
 
+### [04:00]
 
+#### WHAT I WROTE
+
+and the evaluators have been trained to give you ~~disgarenging~~ ~~non-verbing~~ feedback, like this 
+now, you ~~sicinfenlty~~ ~~the morolized~~
+time for part two a math test,and ~~unbenounce~~ to you the ~~experimental~~ has been trained to ~~eharuse~~ you during it.
+
+we gonna all do this together, it's gonna be fun
+
+
+#### WHAT IT SHOULD BE
+
+and the evaluators have been trained to give you __discouraging__ __non-verbal__ feedback,
+now that you are __sufficiently__ __demoralized__,
+time for part two: a math test.
+and __unbeknownst__ to you, the __experimenter__ has been trained to __harass__ you during it.
+now we gonna to all do this together. it's gonna be fun.
+
+### [04:30]
 Daily Goal => [5:30]
