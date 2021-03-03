@@ -155,3 +155,26 @@ and here the science says yes.
 when you change your mind about stress, you can change your body's response to stress.
 
 ### [03:30]
+
+
+### [03:30]
+
+#### WHAT I WROTE
+
+now to explain how this works i want you all to pretend that you are participant in a study
+designed to stress you out its called the social stress test
+you come in to ~~labratory~~ and you are told you have to give five minutes ~~in prompt to~~ speech
+
+on your personal weaknesses to a panel of expert evaluator sitting right in front of you
+and to make sure ~~you~~ feel presuare there are bright lights and a camera on your face kinda like this
+
+#### WHAT IT SHOULD BE
+
+now to explain how this works, i want you all to pretend that you are participant__s__ in a study designed to stress you out. it's called the social stress test.
+
+you come into the __laboratory__, and you are told you have to give a five-minutes __impromptu__ speech on your personal weaknesses to a panel of expert evaluator__s__ sitting right in front of you, and to make sure you __fell__ the pressure there are bright lights and a camera in your face, kinda like this.
+
+### [04:00]
+
+
+Daily Goal => [5:30]
