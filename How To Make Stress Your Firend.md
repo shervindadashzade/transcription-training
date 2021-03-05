@@ -238,8 +238,29 @@ that guy made a mistake
 
 we are going to have to start all over again
 
+### [05:00]
 
 ### [05:00]
 
-Daily Goal => [5:30]
+#### WHAT I WROTE
+
+you are not very good at this,are you?
+okay,so you get the idea
+now you ~~are~~ actually in the study
+you probably be a little stress out
+your heart ~~maybe~~ pounding you might breathing faster maybe breaking out into a ~~sweet~~
+normally we interpret ~~this~~ physical changes as anxity or signs that we are ~~couping(?)~~ very well with the pressure
+but what if you view them ~~instand~~ as signs that your body was energized was ~~prepearing~~ you to meet this challenge
+
+#### WHAT IT SHOULD BE
+
+You'are not very good at this, are you?
+okay, so you get the idea
+if you __were__ actually in this study
+you __had__ probably be a little stress__ed__ out
+your heart __might__ be pounding you might __be__ breathing faster, maybe breaking out into a __sweat__.
+and normally we interpret __these__ physical changes as anxiety or signs that we are __not__ __coping__ very well with the pressure.
+but what if you view__ed__ them __instead__ as signs that your body was energized, was __preparing__ you to meet this challenge ?
+
+### [05:30]
 
