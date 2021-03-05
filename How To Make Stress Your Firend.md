@@ -264,3 +264,25 @@ but what if you view__ed__ them __instead__ as signs that your body was energize
 
 ### [05:30]
 
+### [05:30]
+
+#### WHAT I WROTE
+
+and that is exactly what participents were told in a study conducted ~~in the~~ harward university
+
+before they went through the social stress test they were ~~thought~~ to rethink their stress response was helpful~~l~~.
+that pounding heart is preparing you for action  if you breathing faster it's no problem it's getting more oxygen to your brain
+and participents who learnt to view the stress response as helpfull for their performance 
+they were less stressed out and less ~~anxiess~~ and more confident
+but the most ~~fastinating~~ finding to me was how their phisycal response changed
+
+#### WHAT IT SHOULD BE
+
+now that is exactly what participants were told in a study conducted __at__ Harvard University
+
+before they went through the social stress test, they were __taught__ to rethink their stress response as helpful.
+that pounding heart is preparing you for action if you breathing faster, it's no problem. it's getting more oxygen to your brain.
+and participants who learned to view the stress response as helpful for their performance,
+well, they were less stressed out,less __anxious__, more confident,
+but the most __fascinating__ finding to me was how their physical __stress__ response changed .
+### [06:5]
