@@ -286,3 +286,247 @@ and participants who learned to view the stress response as helpful for their pe
 well, they were less stressed out,less __anxious__, more confident,
 but the most __fascinating__ finding to me was how their physical __stress__ response changed .
 ### [06:5]
+
+#### WHAT I WROTE
+
+now the typical stress response your heart rate goes up and your blood veseles can stretched like this
+this is one of the reasons that can stress sometimes assosicate with cardio vascular dissease its not really healthy to be in this state all the time.
+but in the study one participants view thier stress response as helpful 
+thier blood veseles stayed relaxed like this 
+
+#### WHAT IT SHOULD BE
+
+
+
+### [06:30]
+
+#### WHAT I WROTE
+
+thier heart stil pounding but this is a much healthier cardio vascular profile 
+it actualy looks like what happens in moments of joy and courage
+over a life time full stress experinces this one biological change could be the diffrence between the stress reduces heart attack in age of 50 and living well into your 90s.
+and this is really what the new science of stress reveals that how you think about stress matters.
+
+#### WHAT IT SHOULD BE
+
+
+### [07:02]
+
+#### WHAT I WROTE
+
+so my goal as social psychologist has changed i no longer want to get rid off your stress i want to make you better at stress.
+and we just did a little intervention
+if you raised your hand and said you've had a lot of stress in the last year
+we could say we relived
+because hopefully the next time your heart is pounding from stress you're going to remember this talk and you're going to think to yourself this is my body helping me raised this challenge. 
+
+
+#### WHAT IT SHOULD BE
+
+
+### [07:32]   
+
+#### WHAT I WROTE
+
+when you view stress in that way your body belives you and your stress response become healthier
+now i said i have over decades of demonizing stress to redeem myself from
+so we're going to do one more intervintion 
+i want to tell you about one of the most underappreciated aspects of the stress response
+and the idea is this
+stress makes you social
+
+#### WHAT IT SHOULD BE
+
+
+### [08:00]
+
+### WHAT I WROTE
+
+to understand this side of stress we need to talk about a hormon "oxytocin"
+and i know oxytocin has already gotten as much hype as a horman can get
+it even has it's cute nick name the cuttle(?) hormone 
+because it released when you hug someone
+but, this is a very small part of what oxytocin is involved in
+oxytocin is a neurohormone 
+if i tuned your brain social instinct
+it primes you to do things that strengthen your close relation ships.
+oxytocin makes you crave physical contact with your friends and family
+
+
+### WHAT IT SHOULD BE
+
+
+
+### [08:30]
+
+#### WHAT I WROTE
+
+it enhances your empathy
+it even makes you more willing to help and support the people you care about
+some people even suggested we should snore oxytocin to become more compassionent 
+but here's most people dont understand about oxytocin
+it's a stress hormone
+
+#### WHAT IT SHOULD BE
+
+### [09:00]
+
+#### WHAT I WROTE
+
+your poterhermonegallen pumps this stuff out as part of the stress response
+it's as much part of your stress response as adrenaline that makes your heart pound
+and when oxytocin has released in the stress response it's motivating you to seek support
+your biological stress response is nudging you to tell someone how you feel instead of bottling it up.
+your stress response wants to make sure you know this when someone else in your life is strugling
+so you can support each other.
+
+#### WHAT IT SHOULD BE
+
+
+
+
+### [09:35]
+
+#### WHAT I WROTE
+
+when life is difficult
+your stress response wants you to be surrounded by people who care about you
+okay, so how knowing this side of stress going to make you healthier ?
+oxytocin doesnt only act on your brain
+it also acts on your body
+and one of it's main role in your body is to protect your cardio vascular system from the effects of stress
+
+#### WHAT IT SHOULD BE
+
+
+
+### [10:00]
+
+#### WHAT I WROTE
+
+it's a natrual inflammatory it also helps your blood veseles stay relaxed during stress
+but my favorate effect on the body is actualy on the heart 
+your heart has receptors for the hormone
+and oxytocine helps heart cells regenarate and heal from any stress induced damage 
+this stress hormone strengthen your heart 
+and the cool thing is that all of this physical benefits of oxytocin are enhanced by social contact and social support
+
+
+#### WHAT IT SHOULD BE
+
+
+
+### [10:30]
+
+#### WHAT I WROTE
+
+so when you reached out to others under stress either to sick support or to help someone else you release more of this hormone and your stress response becomes healthier and you actually recover faster from stress 
+i found this amazing that your stress response that your stress response has bulit in mechanism for stress resilience and that mechanism is human connection
+
+  
+
+#### WHAT IT SHOULD BE
+
+
+
+### [11:00]
+
+#### WHAT I WROTE
+
+i wanna finish by telling you about one more study
+and listen up because this study also could save a life
+this study tracked about a thousands adults in united states and they raged in age from 34 to 93 
+and they started study by asking how much stress have you experinced in the last year ? 
+they also asked about how much time have you spent helping out friends, neighbors, people on your community ?
+and then they used public records for the next five years to find out who died 
+  
+
+#### WHAT IT SHOULD BE
+
+
+### [11:35]
+
+#### WHAT I WROTE
+
+okay, so the bad news first.
+for every major stressful life experince like financial difficulties or family crisis that increase the risk of dying by 30 percent.
+but
+and i hope you are expecting a but 
+i know
+but that wasnt true for every one 
+people who spent time caring for others 
+showed absolutely no stress related increase in dying  (????) 
+
+#### WHAI IT SHOULD BE
+
+
+
+
+### [12:00]
+
+#### WHAT I WROTE
+
+caring creates resilience 
+and so we see once again 
+that the harmful effects of stress are not evadable
+how you think and how you act can transform your experince of stress 
+when you chose view your stress response as helpful 
+you create biology of courage
+
+
+#### WHAT IT SHOULD BE
+
+
+### [12:30]
+
+#### WHAT I WROTE
+
+and when you choose to connect to others under stress 
+you can create resilience 
+now i wouldn't necessarily ask for more stressful experinces in my life 
+but this science is giving me whole new preciation for stress 
+stress gives us access to our hearts
+the compassion of heart that finds joy and meaning and connecting with others 
+and yes your pounding physical heart's working so hard to give you strength and energy
+
+
+
+#### WHAT IT SHOULD BE
+
+
+
+### [13:10]
+
+#### WHAT I WROTE
+
+and when you choose to view stress in this way
+you are not just getting better at stress you actually making a pretty prefound statement 
+you are saying that you can trust to your self to handle life challenges 
+and you remembering that you have not to face them alone 
+thank you 
+
+
+
+ah this is kinda amazing what you're telling us 
+this seems amazing to me that a belief about stress can make so much diffrence to someone's life expecteacy
+how that extends to advise like someone's making choise a stressful job and a non stressful job 
+does it matter 
+which way they go ?
+it's equally wise to go for stressful job as long as you can believe you can handle it , make some sense?
+yeah, one thing we know for certain is that chasing meaning is better for your health and trying avoid this comfort so i would say that the best way to make decisions is go after what is it creates meaning in your life and then trust your self to handle the stress it follows 
+thank you so much
+
+
+
+
+
+that was kelly macgonigal recorded ted global at emberestcalland june 2013
+for more information on ted visit ted.com
+
+and dedeh dedeh ... :)
+
+
+#### WHAT IT SHOULD BE
+
+
+### [14:00]
